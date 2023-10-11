@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sukssuks
+- 👋 Hi, I’m @Maxwell da cat
 - 👀 I’m interested in hacks/mods
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me via gmail:sasumaku79@gmail.com
